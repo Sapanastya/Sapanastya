@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sapanastya
+- 👋 Hi, I’m @Saprykina Anastasiya
 - 👀 I’m interested in edtech, tracking, management, public administration and services and so on...
 - 🌱 I’m currently learning prodact management.
 - 💞️ I’m looking to collaborate on product managers.
